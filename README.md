@@ -1,17 +1,18 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𐔌 ⚔️  𐦯ㅤㅤ"ㅤsisterㅤ,ㅤyou've finally found me .ㅤ.ㅤ" ㅤㅤ🌹ㅤㅤ｡ৎ
+# 𐔌 ⚔️  𐦯 "ㅤsisterㅤ,ㅤyou've finally found me .ㅤ.ㅤ" 🌹｡ৎ
 
 
 
-
+<div align="center">
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/9eeebfda-1348-43ad-9f53-d7d5cec2e4f9" />
+&ensp;
 
-
-ㅤㅤㅤㅤㅤㅤ^ྀི𓈒 ⸝⸝ 𓍼  as long as you can never leave , i will always be the 'knight ,' and you will never go to the outside worldㅤ.ㅤㅤㅤㅤ 𓂃 𓈒
+^ྀི𓈒 ⸝⸝ 𓍼  as long as you can never leave , i will always be the 'knight ,' and you will never go to the outside worldㅤ.ㅤㅤ 𓂃 𓈒
 
 <img width="2048" height="528" alt="image" src="https://github.com/user-attachments/assets/c91f3728-6169-4d04-9894-608a1854eba4" />
 
+&ensp;
 
-　　　　　　　　　　　　　　ε ❤︎ з　　　 ♰　﹒　 i love richard sterling with my whole heart   ｡ৎ
+ε ❤︎ з　　　 ♰　﹒　 i love richard sterling   ｡ৎ
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
 
