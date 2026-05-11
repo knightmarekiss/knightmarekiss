@@ -13,7 +13,8 @@
 &ensp;
 
 ε ❤︎ з　　　 ♰　﹒　 i love richard sterling   ｡ৎ
-ε ❤︎ з　　　 ♰　﹒　 hernarich fans pls say hi   ｡ৎ
+  
+  ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡ hernarich fans pls say hi   ｡ৎ
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
 
