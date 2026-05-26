@@ -1,4 +1,4 @@
-# 𐔌 ⚔️  𐦯 "ㅤsisterㅤ,ㅤyou've finally found me .ㅤ.ㅤ" 🌹｡ৎ
+# ⯎ ⚔️ ⯎ "ㅤsisterㅤ,ㅤyou've finally found me .ㅤ.ㅤ" 🌹｡ৎ
 
 
 
