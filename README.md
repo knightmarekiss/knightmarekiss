@@ -3,7 +3,7 @@
 
 
 <div align="center">
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/9eeebfda-1348-43ad-9f53-d7d5cec2e4f9" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/9eeebfda-1348-43ad-9f53-d7d5cec2e4f9" />
 &ensp;
 
 ^ྀི𓈒 ⸝⸝ 𓍼  as long as you can never leave , i will always be the 'knight ,' and you will never go to the outside worldㅤ.ㅤㅤ 𓂃 𓈒
