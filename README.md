@@ -1,4 +1,6 @@
-# ⯎ ⚔️ ⯎ "ㅤsisterㅤ,ㅤyou've finally found me .ㅤ.ㅤ" 🌹｡ৎ
+<div align="center">
+
+⯎ . ⚔️ :ㅤ"ㅤsisterㅤ,ㅤyou've finally found me .ㅤ.ㅤ" 🌹｡ৎ
 
 
 
@@ -18,7 +20,7 @@
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
 
-　　　　　　　　　　　　　　　　　　　　　　　<img width="96" height="18" alt="image" src="https://github.com/user-attachments/assets/89387c23-ef6c-468a-84e8-401ee67480f7" /> 　<img width="81" height="18" alt="image" src="https://github.com/user-attachments/assets/b66de279-d2de-4b68-ae1b-309d25bbac3c" /> 　<img width="62" height="18" alt="image" 
+<img width="96" height="18" alt="image" src="https://github.com/user-attachments/assets/89387c23-ef6c-468a-84e8-401ee67480f7" /> 　<img width="81" height="18" alt="image" src="https://github.com/user-attachments/assets/b66de279-d2de-4b68-ae1b-309d25bbac3c" /> 　<img width="62" height="18" alt="image" 
                                                                                                             src="https://github.com/user-attachments/assets/9e8d0b5a-efcd-4e43-9f43-4f8a3706c25f" />
 
  _. 　౨ৎ　　　◟　𓈒　creds to kipjif on tumblr for the graphic !  ,_  
