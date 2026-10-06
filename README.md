@@ -10,9 +10,8 @@
 
   &ensp;
 
-^ྀི𓈒 ⸝⸝ 𓍼  as long as you can never leave, I will always be the 'knight,' and you will never go to the outside worldㅤ.ㅤㅤ 𓂃 𓈒
-
 hello! Hi *smiles*
+
 .𖦏 ݁˖ Hello! my name is Asta or Judas, and I  really like idv😁 If we ever end up talking please tell me if any bit of my humor and the way i talk is a bother.  
 &ensp;
 
@@ -33,6 +32,9 @@ Above 20 (unless already friends) , people who force their headcanons/ships onto
 <img width="2048" height="528" alt="image" src="https://github.com/user-attachments/assets/c91f3728-6169-4d04-9894-608a1854eba4" />
 
 &ensp;
+
+^ྀི𓈒 ⸝⸝ 𓍼  as long as you can never leave, I will always be the 'knight,' and you will never go to the outside worldㅤ.ㅤㅤ 𓂃 𓈒
+
 
 ε ❤︎ з　　　 ♰　﹒　 i love richard sterling   ｡ৎ
   
