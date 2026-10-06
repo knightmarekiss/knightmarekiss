@@ -36,7 +36,9 @@ Above 20 (unless already friends) , people who force their headcanons/ships onto
 
 ε ❤︎ з　　　 ♰　﹒　 i love richard sterling   ｡ৎ
   
-  ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡ hernarich fans pls say hi   ｡ৎ
+  ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡ 
+  
+  hernarich fans pls say hi   ｡ৎ
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
 
