@@ -2,12 +2,13 @@
 
 ⯎ . ⚔️ :ㅤ"ㅤsister,ㅤyou've finally found me..ㅤ" 🌹｡ৎ
 
-![](https://komarev.com/ghpvc/?username=cutekomakun&color=red&style=plastic&label=.𖦏 ݁˖‎&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=cutekomakun&color=red&style=plastic&label=.𖦏‎&abbreviated=true)
 
 
 <div align="center">
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/9eeebfda-1348-43ad-9f53-d7d5cec2e4f9" />
-&ensp;
+
+  &ensp;
 
 ^ྀི𓈒 ⸝⸝ 𓍼  as long as you can never leave, I will always be the 'knight,' and you will never go to the outside worldㅤ.ㅤㅤ 𓂃 𓈒
 
