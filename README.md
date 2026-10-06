@@ -1,3 +1,7 @@
+<img width="1000" height="90" alt="image" src="https://github.com/user-attachments/assets/00e19cf3-30a2-478c-be87-155338f7e7ec" />
+
+  &ensp;
+
 <div align="center">
 
 ⯎ . ⚔️ :ㅤ"ㅤsister,ㅤyou've finally found me..ㅤ" 🌹｡ৎ
@@ -48,3 +52,10 @@ Above 20 (unless already friends) , people who force their headcanons/ships onto
                                                                                                             src="https://github.com/user-attachments/assets/9e8d0b5a-efcd-4e43-9f43-4f8a3706c25f" />
 
  _. 　౨ৎ　　　◟　𓈒　creds to kipjif on tumblr for the graphic !  ,_  
+
+
+  &ensp;
+
+ <img src="https://i.pinimg.com/736x/93/18/a0/9318a083fa3fb0430efecfe6479530e3.jpg" alt="Story pin image"/>
+ 
+ sister*
