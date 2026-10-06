@@ -38,7 +38,7 @@ Above 20 (unless already friends) , people who force their headcanons/ships onto
   
   ╰┈➤ artist, minor , intp , 9w1 ⋆˚꩜｡ 
   
-  hernarich fans pls say hi   ｡ৎ
+  . hernarich fans pls say hi   ｡ৎ
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
 
