@@ -26,6 +26,7 @@ hello! Hi *smiles*
   
 ﹕𖤐 . INT : IDENTITY V FANS!!!  especially those who are appreciative of Richard, Emil, Andrew, and Edgar😁   
  &ensp;
+
 ╰┈➤ FANDOMS : identity v , twisted wonderland , danganronpa , hetalia , genshin , honkai , creepypasta , marble hornets , bungo stray dogs , OMORI , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , saiki k , ouran , tawog , witch hat atelier , etc: check strawpage 4 more . ゛ᝰ ˖ ࣪ ˗
 
  
