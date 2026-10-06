@@ -2,7 +2,7 @@
 
 ⯎ . ⚔️ :ㅤ"ㅤsister,ㅤyou've finally found me..ㅤ" 🌹｡ৎ
 
-![](https://komarev.com/ghpvc/?username=cutekomakun&color=red&style=plastic&label=.𖦏‎&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=cutekomakun&color=white&style=plastic&label=.𖦏‎&abbreviated=true)
 
 
 <div align="center">
