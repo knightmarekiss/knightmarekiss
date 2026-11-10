@@ -29,10 +29,13 @@ hello! Hi *smiles*
 
 ╰┈➤ FANDOMS : identity v , twisted wonderland , danganronpa , hetalia , genshin , honkai , creepypasta , marble hornets , bungo stray dogs , OMORI , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , saiki k , ouran , tawog , witch hat atelier , etc: check strawpage 4 more . ゛ᝰ ˖ ࣪ ˗
 
+╰┈➤ IDV SHIPS I LIKE : edluca, aesvic, hernarich, jokermike, adamil, florimatt, aesdrew, VALE, edrich, orphrick, nortnaib, alimelly, gannie, luchinini, viotracy, xiefan, veramarg, halva, kevpat, demijose, demipat, kevjose, willganji, michimiles, richdrew, eddrew, vicdrew, lucadrew, viomarg . ゛ᝰ ˖ ࣪ ˗
  
 
 ﹕☩ . DNI : basic dni (homophobes, misogynists, racists, proshippers, incest enjoyers, etc... Especially incest enjoyers. Fuck those guys in specific)
-Above 20 (unless already friends) , people who force their headcanons/ships onto others, toxic yumeshippers, people who hate just to hate (generally just hateful people), people who are insensitive and lack basic empathy, & some "dark humored" individuals that only joke about r@pe, school shootings, & things similar. Even if you tolerate these kinds of things, you'd best not interact with me  ゛ᝰ ˖ ࣪ ˗
+Above 20 (unless already friends) , people who force their headcanons/ships onto others, toxic yumeshippers, people who hate just to hate (generally just hateful people), people who are insensitive and lack basic empathy, & some "dark humored" individuals that only joke about r@pe, school shootings, & things similar. Even if you tolerate these kinds of things . ゛ᝰ ˖ ࣪ ˗
+
+╰┈➤ IDV SHIPS I HATE : richlyn, lucatracy, jacknaib, kreacher w/ anyone(kill him), orphalice, nortmelly, aesganji, annesop, mattanne, joscarl, alvaluca, tonton, jokermarg, mikemarg, ANY proships - There are probably more ships but i cant remember... Im typically a pretty open person with my ships, but these ones i just absoLUTELY hate (sorry) . ゛ᝰ ˖ ࣪ ˗
 
 <img width="2048" height="528" alt="image" src="https://github.com/user-attachments/assets/c91f3728-6169-4d04-9894-608a1854eba4" />
 
