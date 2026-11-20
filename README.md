@@ -20,6 +20,7 @@ hello! Hi *smiles*
 &ensp;
 
 ╰┈➤ artist, minor , intp , 9w1 . ゛ᝰ ˖ ࣪ ˗ 
+
 (if im on 18+, just know im only here bc thats the ONLY place the idv fans are)
 
  
