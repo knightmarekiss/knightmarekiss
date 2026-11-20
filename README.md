@@ -19,7 +19,7 @@ hello! Hi *smiles*
 .𖦏 ݁˖ Hello! my name is Asta or Judas, and I  really like idv😁 If we ever end up talking please tell me if any bit of my humor and the way i talk is a bother.  
 &ensp;
 
-╰┈➤ artist, minor , intp , 9w1 . ゛ᝰ ˖ ࣪ ˗
+╰┈➤ artist, minor , intp , 9w1 . ゛ᝰ ˖ ࣪ ˗ (if im on 18+, just know im only here bc thats the ONLY place the idv fans are)
 
  
   &ensp;
